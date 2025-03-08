@@ -1,1 +1,1 @@
-# cama_evento_imagen_26022025
+# cama_imagenes_26022025
